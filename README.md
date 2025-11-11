@@ -1,0 +1,1 @@
+# swot-intelligence-brief
